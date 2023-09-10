@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shcherbakkk
-- 👀 I’m interested in child porn
+- 👀 I’m interested in hokcey
 - 🌱 I’m currently learning python
 - 📫 How to reach me tg same
 
